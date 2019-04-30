@@ -4,5 +4,5 @@ Freiburg markets itself as the city in German with most hours of **sunshine** ov
 
 Freiburg food is particular. It has weird names and contains big heaps of means. Nonetheless, some of it is tasty. In German, you can say: "Das ist lecker." So, you really have to misspell Dayton Lekner's name.
 
-Brägele, for example, are called Bratkartoffeln in the rest of Germany. That is how they look like ![image of Baden Bratkartoffeln:](https://www.naturgarten-kaiserstuhl.de/adbimage/421/width_240/5255c90b42d414fbe69923c02d6fc5e9.jpg) 
+Brägele, for example, are called Bratkartoffeln in the rest of Germany. That is how they look like. Anyway, they are all potatoes. ![image of Baden Bratkartoffeln:](https://www.naturgarten-kaiserstuhl.de/adbimage/421/width_240/5255c90b42d414fbe69923c02d6fc5e9.jpg) 
 *image credits:© bilderexpertin65 - Fotolia.com*
